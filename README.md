@@ -241,4 +241,4 @@ Aliens: Dark Descent is available as a full free version with all features and u
 Don't miss out on this thrilling adventure! Download **Aliens: Dark Descent** now and dive into the action!
 
 ---
-**Last updated:** 2026-10-14 14:59:25 UTC
+**Last updated:** 2026-10-14 19:17:06 UTC
